@@ -1,2 +1,0 @@
-# hkumaraswamy
-Kuppam Cakes
